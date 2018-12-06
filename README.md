@@ -1,2 +1,2 @@
 # hello-world
-first thing to do
+Nothing special but im the limited editon!
